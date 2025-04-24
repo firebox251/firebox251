@@ -12,7 +12,7 @@
 
 - 📫 How to reach me ... Ring Ring
 - 😄 Pronouns: ...Its FIRE
-- ⚡ Fun fact: ...Be carefull while playingwith it!!
+- ⚡ Fun fact: ...Be carefull while playing with it!!
 
 
 <!---
