@@ -11,8 +11,8 @@
 ![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=firebox251&layout=compact&theme=radical)
 
 - 📫 How to reach me ... Ring Ring
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...Its FIRE
+- ⚡ Fun fact: ...Be carefull while playingwith it!!
 
 
 <!---
